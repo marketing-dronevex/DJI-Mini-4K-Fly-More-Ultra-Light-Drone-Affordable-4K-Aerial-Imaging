@@ -1,2 +1,4 @@
-# DJI-Mini-4K-Fly-More-Ultra-Light-Drone-Affordable-4K-Aerial-Imaging
-The DJI Mini 4K Fly More Ultra-Light Drone brings 4K video capability to budget-conscious creators in a portable, regulation-friendly package under 249 grams.
+DJI Mini 4K Fly More Ultra-Light Drone – Affordable 4K Aerial Imaging
+
+The DJI Mini 4K Fly More Ultra-Light Drone brings 4K video capability to budget-conscious creators in a portable, regulation-friendly package under 249 grams. Featuring a 1/2.3-inch CMOS sensor, it captures stunning 4K/30fps videos and 48MP photos with excellent detail and vibrant colors. The drone supports intelligent flight modes including QuickShots and Panorama for creative storytelling with minimal effort. With up to 31 minutes of flight time per battery and 10 km transmission range, it provides extended flying sessions for content creators. Wind resistance up to level 5 ensures stable flight in varied conditions. The Fly More Combo includes three batteries, a charging hub, and accessories for continuous aerial shooting adventures.  
+Explore more: https://dronevex.in/product/dji-mini-4k-fly-more-ultra-light-drone/
